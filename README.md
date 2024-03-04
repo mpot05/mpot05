@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @mpot05
+- 👀 I’m interested in: game
+- 🌱 I’m currently learning: What's an integer
+- 📫 How to reach me: mpotter0905@gmail.com
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: game
